@@ -1,6 +1,6 @@
 Opinions
 ========
 
-These opinions are mine and you should make them yours too.
+These opinions are WRONG and you should IGNORE yours too.
 
 Be sure to read the license!
